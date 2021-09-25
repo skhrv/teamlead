@@ -32,6 +32,8 @@
 
 Купить не знаю где можно, скачать, наверное, только.
 
+Купить книгу [можно на озоне](https://www.ozon.ru/product/akterskiy-trening-gimnastika-chuvstv-uchebnoe-posobie-dlya-spo-gippius-sergey-vasilevich-241208378/)
+
 ## Джедайские техники
 
 **Автор**: М. Дорофеев
